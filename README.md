@@ -1,0 +1,2 @@
+# ders-sonra
+çalışma
